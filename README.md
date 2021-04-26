@@ -18,4 +18,4 @@
 [![](https://img.shields.io/badge/Facebook-blue?logo=Facebook&logoColor=blue&labelColor=white)](https://www.facebook.com/hakiki.ganz.28.29.29.42)
 [![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://wa.me/6285946352369?text=Asalamualaikum+bang)
 
-<img src="https://github.com/ROMI-AFRZL/ROMI-AFRZL/blob/main/Ngentod/status_me_status_90e259db678545f49a41faf12e095d58.jpg" width="640" title="Menu" alt="Menu">
+<img src="https://github.com/Hakiki-XD/Hakiki-XD/blob/main/:v/Screenshot_2021-04-26-20-15-20-633_com.whatsapp.jpg" width="640" title="Menu" alt="Menu">
